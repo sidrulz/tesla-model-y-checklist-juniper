@@ -26,6 +26,8 @@ This checklist requires at least 90 minutes to complete.
 
 ## Before You Buy
 
+Planning to order? Use this [referral link](https://ts.la/siddharth853010) to get credits toward Supercharging and other Tesla perks.
+
 Ensure that you buy the car at the location you intend to pick up. Working with a showroom sales representative means
 that the rep is not on the ground and they are unable to inspect the vehicle themselves before selling it to you. Sales
 requests are simply forwarded to the pickup location and any personal details or requests are lost in the handoff.
